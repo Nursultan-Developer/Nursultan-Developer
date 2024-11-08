@@ -2,7 +2,7 @@
 	•	👀 I’m interested in programming, boxing, technology, and creating Minecraft servers
 	•	🌱 I’m currently learning Java and exploring various coding skills
 	•	💞️ I’m looking to collaborate on projects related to programming and game server development
-	•	📫 How to reach me: [Your contact info or link]
+	•	📫 How to reach me: telegram: @tenchik, Vk:https://vk.com/llbragsll
 	•	😄 Pronouns: He
 	•	⚡ Fun fact: I enjoy combining my love for gaming with coding by building custom Minecraft servers
 <!---
